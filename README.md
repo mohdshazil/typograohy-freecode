@@ -1,1 +1,1 @@
-HOSTED LINK :- 
+HOSTED LINK :- https://mohdshazil.github.io/typograohy-freecode/
